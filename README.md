@@ -1,4 +1,4 @@
-## Hi there 👋
+![nya](https://media1.tenor.com/m/IAccOSUmcA4AAAAd/coy-piso-chewing.gif) 
 
 <!--
 **ashokaziwa/ashokaziwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

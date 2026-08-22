@@ -1,4 +1,4 @@
-![nya](https://media1.tenor.com/m/IAccOSUmcA4AAAAd/coy-piso-chewing.gif) 
+![nya](https://tenor.com/view/detroit-become-human-dbh-hank-anderson-sitting-gif-17507012) 
 
 <!--
 **ashokaziwa/ashokaziwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

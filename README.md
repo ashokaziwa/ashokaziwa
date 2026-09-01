@@ -1,8 +1,5 @@
-![nya](https://media1.tenor.com/m/BpxSSyKRJdgAAAAd/detroit-become-human-dbh.gif) 
+![nya](https://media1.tenor.com/m/sToErWdsA4AAAAAC/hannibal.gif) 
 
-
-----
-![2](https://media1.tenor.com/m/Oem6D68SQOUAAAAC/dbh-hank.gif) 
 
 <!--
 **ashokaziwa/ashokaziwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

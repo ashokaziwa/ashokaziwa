@@ -1,6 +1,6 @@
 ![nya](https://media1.tenor.com/m/sToErWdsA4AAAAAC/hannibal.gif) 
 
-
+I have very little shame, I may sit next to you if we have same interest or if you cool o(〃＾▽＾〃)o I like socializing and I like being quiet too smiles
 <!--
 **ashokaziwa/ashokaziwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

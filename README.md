@@ -8,8 +8,8 @@
 <div align="center">STILL doesn't mean it's meaningless, it's not, there's cool about normal friendship! So please int if we have same interest smiles!</div>
 
 
-<div align="center">4) do not flirt or make sexual jokes directed to *me*, if it's about your favorite character I don't mind. I tend to be awkward and hesitant if all you do is being freaky
-If you see me engaging on it, I hope you know I just tolerate it often, but I can't lie, sometimes it made me laugh...</div>
+<div align="center">4) do not flirt or make sexual jokes directed to *me*, if it's about your favorite character I don't mind. I tend to be awkward and hesitant if all you do is being freaky.</div>
+<div align="center">If you see me engaging on it, I hope you know I just tolerate it often, but I can't lie, sometimes it made me laugh...</div>
 <div align="center">That's all Ta-Ta #hopecore #healing</div>
 <!--
 **ashokaziwa/ashokaziwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

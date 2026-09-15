@@ -1,4 +1,4 @@
-![nya](https://media1.tenor.com/m/1nwV5BHwaDgAAAAd/rk800-connor.gif) 
+![nya](https://tenor.com/view/rk800-connor-pole-dance-mod-detroit-become-human-gif-17792219) 
 
 I have very little shame, I may sit next to you if we have same interest or if you cool o(〃＾▽＾〃)o I like socializing and I like being quiet too smiles
 <!--

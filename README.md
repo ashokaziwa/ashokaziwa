@@ -1,4 +1,4 @@
-![nya](https://media1.tenor.com/m/yi6pvbkSSJgAAAAd/bro-thinks-he-is-the-main-character-meow-meow.gif) 
+![nya](https://media1.tenor.com/m/1nwV5BHwaDgAAAAd/rk800-connor.gif) 
 
 <div align="center">Hello! smiley face</div>
 <div align="center">────୨ৎ────</div>

@@ -1,5 +1,5 @@
-@ very much often with my courtee, 
-as I barely stay in pony town these days, and only hopped on solely hang out with my courtee
+@ very often with my courtee, 
+as I barely hop on pony town these days, and only hopped on to solely hang out with my courtee
 
 I only stay if you sat/accompany me
 

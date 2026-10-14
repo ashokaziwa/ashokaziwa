@@ -2,7 +2,7 @@
 
 I only stay if you sat/accompany me
 
-don't flirt/make excessive sexual joke with *scratch head*
+don't flirt/make excessive sexual joke with me *scratch head*
 
 @ current interest: enneahumans!! I want to get into resident evil movie but I haven't watched it yet (sad face) 
 

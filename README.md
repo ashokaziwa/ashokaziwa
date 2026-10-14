@@ -7,4 +7,4 @@ don't flirt/make excessive sexual joke with *scratch head*
 
 @ current interest: enneahumans!! I want to get into resident evil movie but I haven't watched it yet (sad face) 
 
-I actually like many things kinda, u can ask (flexible) 
+I actually like many things kinda, you can ask (flexible) 
